@@ -1,0 +1,1 @@
+first take 2 cups of whole refined flour than add one cup of milk and two tablespoons of oil . grind the sugar and add to above mixture with spoonful of condensed milk. mix the mixture and then pour it in baking tray and bake for about 20 min at 200 celsius. 
